@@ -1,4 +1,4 @@
-Published on itch.io(https://naman-jain.itch.io/rise-in-air)\
+Published on itch.io : https://naman-jain.itch.io/rise-in-air \
 Rise In Air\
 Team 4\
 Team Members :\
